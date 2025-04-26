@@ -14,5 +14,5 @@ Ensure transparency and trust between donors and MSS
 
 Through this project, we combined technical skills and social responsibility to create a solution that empowers specially-abled children and strengthens NGO support systems.
 
-For better understanding refer to this ppt:-
+For better understanding refer to the ppt.
 
